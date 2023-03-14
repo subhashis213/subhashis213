@@ -1,4 +1,6 @@
-### Hi there i'm subhashis sahu👋
+### Hey! <img src="https://github.com/TheDudeThatCode/TheDudeThatCode/blob/master/Assets/Hi.gif" width="29px">, I'm Subhashis Sahu
+<img src="https://media.giphy.com/media/p4NLw3I4U0idi/giphy.gif" width="300">
+
 ---
 #💫 About Me:
 Exploring the new era of technology❤️
